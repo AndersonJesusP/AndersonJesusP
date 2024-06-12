@@ -1,5 +1,5 @@
-### Bem vindos ao meu perfil 😎😎😎😎<3
+### Bem vindos ao meu perfil 🐱‍👤🐱‍👤<3
 
 meu nome é Anderson Jesus 
 
--E estou estudando no alura 😉
+-E estou estudando no alura e sou apaixonado por futebol! 😉
